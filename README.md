@@ -12,7 +12,7 @@ Noxtools is a reliable group-buy platform launched in 2022, providing discounted
 - **Support**: 24/7 live chat (responses within 20 minutes)
 - **Pricing**: Starting from ₹49/month
 - **Refund Policy**: 48-hour money-back guarantee
-- **Official Website**: [noxtools.com](https://noxtools.com)
+- **Official Website**: [noxtools.com](https://noxtools.com/secure/aff/go/asdasd250611)
 
 ## Key Features
 1. **Massive Savings**: Save up to 80% on tools like SEMrush, Ahrefs, Canva Pro, Grammarly, and more.
